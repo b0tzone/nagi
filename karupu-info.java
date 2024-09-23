@@ -1,1 +1,0 @@
-karupu is good man.
